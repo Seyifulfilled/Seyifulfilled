@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @seyiakinruntan
+- 👋 Hi, I’m @Seyifulfilled
 - 👀 I mean to code as well as I write English
 - 🌱 I’m at it
 - 💞️ I’d be deeply grateful for any support that I receive
